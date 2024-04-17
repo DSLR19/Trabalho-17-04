@@ -1,1 +1,1 @@
-# Trabalho-17-04 apresentado po Daniel Rodrigues, Flaviane e Evelyn
+# Trabalho-17-04 apresentado por Daniel Rodrigues, Flaviane e Evelyn
